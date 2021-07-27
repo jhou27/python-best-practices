@@ -47,7 +47,7 @@ Jainam Mehta |
 Jared Pollard |
 Jasmine Pan |
 Jay Pittman |
-Jinghua Ou |
+Jinghua Ou | To be heard is to hear others.
 Jingyu Zhang |
 Jonathan Kim |
 Jorge Arias |
